@@ -14,6 +14,8 @@
 
 - 2 tabletes de MAGGI Caldo Carne
 
+- nova lina
+
 #### MODO DE PREPARO
 
 ##### Lasanha:
